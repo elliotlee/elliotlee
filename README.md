@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @elliotlee
 - 👀 I’m interested in computers and art
 - 🌱 I’m currently learning computer science and blender
-- 💞️ I’m looking to collaborate on :)
 - 📫 How to reach me https://sunexplode.com/resume
