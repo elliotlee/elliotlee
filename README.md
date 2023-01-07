@@ -1,4 +1,4 @@
 - Hi, I’m @elliotlee
 - I’m interested in computers and art
 - I’m currently learning computer science and blender
-- How to reach me https://sunexplode.com/
+- How to reach me https://e-lliot.com/
